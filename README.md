@@ -1,0 +1,1 @@
+Te muututte aina vain pahemmiksi. Ja kaikki tuo puhe on tarpeetonta, koska meistä tulee muhennosta joka tapauksessa. Nyt minä menen riippumattoon ajattelemaan. Hyvästi toistaiseksi, jos käy niin ettemme ehdi tavata enää koskaan.
